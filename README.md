@@ -1,4 +1,4 @@
-# Hi there, I'm [Sara Abdalla]
+# Hi there, I'm Sara Abdalla
 
 I am a highly analytical International Business student based in Kampala, Uganda, dedicated to bridging the gap between global market frameworks and advanced quantitative analysis. I leverage data-driven methodologies to dissect macroeconomic trends and corporate financial ecosystems.
 

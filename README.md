@@ -16,4 +16,4 @@ I am a highly analytical International Business student based in Kampala, Uganda
 - Current GPA: 4.55 / 5.00 (Top 1% of Cohort)
 - Target: MSc in Financial Economics (MFE) 
 
-📫 How to reach me: [https://www.linkedin.com/in/sara-abdalla8/] or [saraabdalla.7777@gmail.com]
+📫 How to reach me: https://www.linkedin.com/in/sara-abdalla8/ or saraabdalla.7777@gmail.com
